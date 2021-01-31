@@ -1,0 +1,1 @@
+Stuffed Garlic Bread can be served with ketchup or mayonnaise along with some soda or can be eaten as it is.
